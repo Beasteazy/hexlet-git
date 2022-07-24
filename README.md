@@ -1,4 +1,4 @@
 Пиздец
 нахуй
 add new content
-нахуй
+No code No pain
